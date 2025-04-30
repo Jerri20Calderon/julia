@@ -1,0 +1,6 @@
+# Astro Ziora Anmeldung
+
+Wie versprochen, hier ist dein aktueller  Astro Ziora  Link!
+Du bist nur noch einen Klick von deiner Registrierung entfernt:
+
+## ➡️ [Registrierung abschließen](https://t.co/JyfL1KUbgv)
